@@ -1,0 +1,4 @@
+P.P., aka Zo-physics, exists to finally fill out the gaps and voids in current cosmological and mathematical physics models by providing the foundational "floor" and beginning point that's been missing for over a century.
+A 2-fold method of returning to fundamental mechanical basics, "follow the logic" mental processing, and developing a "back to the beginning" model has allowed for a proper process of cosmological mechanics to yield stunning results.
+By returning to the roots of the discipline, the celestial mechanics of 'old' - now cosmological mechanics, for a 21st century application and perception, can finally advance the discipline(s) forward in coherrence.
+Developing this discipline into a fully fledged field of research and educational degree track are the 2 highest priorities for this new field of Science.
